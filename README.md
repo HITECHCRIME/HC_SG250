@@ -22,10 +22,30 @@ Description.
 ## Lyrics
 
 ```
-pull a gullet in my brain
-never stay same
+put a bullet in my brain
+never change all i see it went away 
+son is first hope caught his eye
+i've always told this it all
+never stay the same
+so i cannot say
+so i cannot say
 
-always
+uuu eyyy
+
+things
+i see ya got going on
+fall
+
+don't call all in all
+bugger off
+run it off
+right the wrong
+say i'm gone
+
+01:
+flame in the sun
+
+always a thorax hold on
 
 ```
 
