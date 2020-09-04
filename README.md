@@ -22,36 +22,38 @@ Description.
 ## Lyrics
 
 ```
-put a bullet in my brain
-never change all i see it went away 
+put a bullet in my brain never change 
+all i see it went away 
 son is first hope caught his eye
 i've always told this saying to all
-someone made deep cuts
+someone made deep cuts / some tied my rights
 so i cannot say
 so i cannot say
 
-uuu eyyy
-never stay the same
-
-something wrong all the things
-i see ya got going on
+(uuu eyyy)
+XXXXXXXXXXXXXXX fold on 
+something wrong all the things i see ya got going on
 i some used to sync to fall-offs
 accept all, except the fall / accept no fall
 
-don't call all in all stay in fog and dust
+don't call in all stay in fog and dust
 sayin' what you got on saying you bugger off
 i stay in the flame to run it off
 i say i'm never gonna right the wrong, right your wrong
 
 symbol
 it's a symbol i've given up
-say i'm gone
 
-01:20 flame in the sun
+i say i'm gonna kill it off
+let's say i'm gone
+
+01:20 flame in the sun (aye)
 
 always a thorax hold on
 our flame gotta 
 got the fate is on
+
+never stay the same
 
 ```
 
