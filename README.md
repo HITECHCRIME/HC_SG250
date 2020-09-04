@@ -26,9 +26,9 @@ put a bullet in my brain never change
 all i see it went away 
 son is first hope caught his eye / it's on the first thing that caught his eye
 i've always told this saying to all
-someone made deep cuts / some tied my rights
+some tied my rights / someone made deep cuts / 
 so i cannot say
-so i cannot say
+so i cannot say (it now)
 
 (uuu eyyy)
 XXXXXXXXXXXXXXX fold on 
