@@ -50,7 +50,7 @@ let's say i'm gone
 01:20 flame in the sun (aye)
 
 always a thorax hold on
-our flame gotta 
+our flame gotta saying
 got the fate is on
 
 never stay the same
