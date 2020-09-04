@@ -39,7 +39,7 @@ accept all, except the fall / accept no fall
 don't call in all stay in fog and dust
 sayin' what you got on saying you bugger off
 i stay in the flame to run it off
-i say i'm never gonna right the wrong, right your wrong
+i say i'm never right the wrong, right your wrong
 
 symbol
 it's a symbol i've given up
