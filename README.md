@@ -25,27 +25,32 @@ Description.
 put a bullet in my brain
 never change all i see it went away 
 son is first hope caught his eye
-i've always told this it all
-never stay the same
+i've always told this saying to all
+XXXXXXXXXXXXXX
 so i cannot say
 so i cannot say
 
 uuu eyyy
+never stay the same
 
-things
+all the things
 i see ya got going on
-fall
+i used to sync to brink
+accept all but not a fall
 
-don't call all in all
-bugger off
-run it off
-right the wrong
+don't call all in all stay in fog and dust
+sayin' what you got on saying you bugger off
+i stay in the flame to run it off
+i'm never gonna right the wrong, right your wrong
+
+
 say i'm gone
 
-01:
-flame in the sun
+01:20 flame in the sun
 
 always a thorax hold on
+our flame gotta 
+got the fate is on
 
 ```
 
