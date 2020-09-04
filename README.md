@@ -36,7 +36,7 @@ something wrong all the things i see ya got going on
 i some used to sync to fall-offs
 accept all, except the fall / accept no fall
 
-don't call in all stay in fog and dust
+don't call all in all stay in fog and dust
 sayin' what you got on saying you bugger off
 i stay in the flame to run it off
 i say i'm never right the wrong, right your wrong
