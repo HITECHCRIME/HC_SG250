@@ -26,24 +26,25 @@ put a bullet in my brain
 never change all i see it went away 
 son is first hope caught his eye
 i've always told this saying to all
-XXXXXXXXXXXXXX
+someone made deep cuts
 so i cannot say
 so i cannot say
 
 uuu eyyy
 never stay the same
 
-all the things
+something wrong all the things
 i see ya got going on
-i used to sync to brink
-accept all but not a fall
+i some used to sync to fall-offs
+accept all, except the fall / accept no fall
 
 don't call all in all stay in fog and dust
 sayin' what you got on saying you bugger off
 i stay in the flame to run it off
-i'm never gonna right the wrong, right your wrong
+i say i'm never gonna right the wrong, right your wrong
 
-
+symbol
+it's a symbol i've given up
 say i'm gone
 
 01:20 flame in the sun
